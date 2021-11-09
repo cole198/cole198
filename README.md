@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Nathan Cole
-- 👀 I’m interested in Software Eniginnering/Developement
+- 👀 I’m interested in Software Eniginnering/Developement internships
 - 🌱 I’m currently pursuing a Bachelor's Degree in Computer Engineering at Purdue University
 
 - 📫 How to reach me: jj88@comcast.net
